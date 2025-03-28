@@ -2,7 +2,7 @@
 💫ABOUT ME (🙏WELCOME TO MY PROFILE🙏)
 _______________________________________________________________________________
 -
-- 👋 Hi, I’m @Kmalesh
+- 👋 Hi, I’m @Kmalesh Kumar
 - 👀 I’m interested in Data Analytics and problem solving.
 - 🌱 I’m currently Pursuing Bca .I`m in Second year .
 - 💞️ I’m looking to collaborate on ...
