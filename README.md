@@ -3,7 +3,7 @@
 _______________________________________________________________________________
 -
 - 👋 Hi, I’m @Kmalesh Kumar
-- 👀 I’m interested in Data Science and problem solving.
+- 👀 I’m pursuing Data Analyst and  problem solving.
 - 🌱 I’m currently Pursuing Bca .I`m in Second year .
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 🤔 You can Reach me through linkedin https://www.linkedin.com/in/kamalesh-kumar-647900292/
